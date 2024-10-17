@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python and blender
 - 💞️ I’m looking to collaborate on yes
 - 📫 How to reach me TG: @OnwardHelltakerVivarium
-- 😄 Pronouns: it/they>he/she>ze/xe
+- 😄 Pronouns: it>she/they/ze/xe
 - ⚡ Fun fact: I`m so horny
 
 <!---
